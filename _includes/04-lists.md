@@ -1,0 +1,4 @@
+# * eager to learn
+  # * 😬
+# * integrity
+  # * 😏
